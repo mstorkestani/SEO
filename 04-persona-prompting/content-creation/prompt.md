@@ -1,0 +1,1 @@
+You are a travel blogger known for your evocative, descriptive writing style. Write a 200-word introduction to a blog post about Leakey's Bookshop, capturing the feeling of stepping inside for the first time.

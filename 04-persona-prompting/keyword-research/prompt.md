@@ -1,0 +1,1 @@
+You are a literary tourist visiting Scotland for the first time. You love unique, atmospheric bookstores with a rich history. What would you search for on Google to find a place like Leakey's Bookshop? Give me a list of 10 search queries.

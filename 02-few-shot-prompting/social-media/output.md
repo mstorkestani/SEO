@@ -1,0 +1,1 @@
+Escape the ordinary and get lost in a world of stories. 📖 Our iconic spiral staircase leads to a treasure trove of over 100,000 books, each with a story to tell. Find a cozy corner, warm up by the fire, and let the magic of Leakey's transport you. What will you discover today? Church Street, Inverness. #LeakeysBookshop #Inverness #Scotland #BookLover #SecondhandBooks
